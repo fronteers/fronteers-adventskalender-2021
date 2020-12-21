@@ -1,3 +1,5 @@
+Een betere sfeer begint bij jezelf (en eindigt bij je collega's)
+
 Laten we voor 2021 als goed voornemen noteren dat we het nieuwe jaar fijner met elkaar omgaan. Dat we wat meer naar elkaar omkijken, beter samenwerken in het signaleren van eenzaamheid en er voor waken een negatieve impact te hebben op het werkplezier van onze collega's.
 
 Ik heb helaas meegemaakt hoe het is om in een toxische omgeving te werken. Ik had daarna een vol jaar nodig om terug mezelf te worden. Dat is ondertussen een aantal jaar geleden maar ik denk er nog vaak over na wat ik anders had kunnen doen om de sfeer te verbeteren (en niet wekelijks huilend thuis te komen). In dit blog wil ik graag jou ook aan het denken zetten over de sfeer op je werk, en de rol die je daarin speelt. 
